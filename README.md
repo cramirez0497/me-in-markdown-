@@ -10,4 +10,4 @@ I also enjoyed doing my hobbys while on vacation. I personally dont really enjoy
 
 [This is a playlist containing some of my favorite songs! <3 ](https://music.apple.com/us/playlist/camis-10-favs/pl.u-vxy6J05FWpXmAkB)
 
-![Here is a collage containing photos throughout my summer and photos I feel show my personality!]()
+![Here is a collage containing photos throughout my summer and photos I feel show my personality!](<Screenshot 2026-08-17 7.48.58 PM.png>)
